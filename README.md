@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Rajatx05
+- 👋 Hi, I’m @Rajat Thakare
 - 👀 I’m interested in gaming
 - 🌱 I’m currently learning Bsc computer science
 - 💞️ I’m looking to collaborate on gaming company
